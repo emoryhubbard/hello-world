@@ -9,4 +9,4 @@ My Dad was an industrial engineer who was a big inspiration to me and a hilariou
 
 # What is a Sealing Power??
 
-Jesus Christ said to Peter, whatsoever you bind on earth shall be bound in heaven. He gave him that sealing power. Sadly it disappeared when the apostles were killed. As unlikely as it sounds, Jesus Christ restored His Church and that power back to the Earth. You can learn more at comeuntochrist.org.
+Jesus Christ said to Peter, whatsoever you bind on earth shall be bound in heaven. He gave him that sealing power. Sadly it disappeared when the apostles were killed. As unlikely as it sounds, Jesus Christ restored His Church and that power back to the Earth. You can learn more at <a href='comeuntochrist.org'>comeuntochrist.org</a>.
